@@ -55,6 +55,6 @@ __Vasco:__
 
 __Isadora:__  Depende dos fins de semana mas consigo dizer facilmente durante a semana quando dá mais jeito
 
-__Pedro:__
+__Hugo:__ Posso todos os fins de semana a qualquer hora, menos os fins de semana de março que vou estar sempre fora. Mas posso-me juntar por algum tempo na mesma
 
 __Stefane:__
